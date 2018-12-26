@@ -2,7 +2,7 @@
 There are so many persons who feel their first occupation choice has left them entirely worn out, aimless and bored. Determining to change careers at the mid-stage of your life is a big step, full of confrontation from family members, the possibility of financial instability and risk of failure. But occasionally taking the biggest hazard can give a 360-degree turn to your life. If executed perfectly, a mid-career coach can help you achieve your goals to live a happy, fulfilling life.
 
 
-Making a [Career coach for working professionalshttp://hemantdeshpande.com/career-coach-for-working-professional-in-delhi/](http://hemantdeshpande.com/career-coach-for-working-professional-in-delhi/) means the start of a new stage of work life. This career can be whatever from teaching, painting, discussion, writing, volunteering, travel and leisure. Determining a new career that suits your morals and strengths will help you to realize the highest degree of self-satisfaction.
+Making a Career coach for working professionals means the start of a new stage of work life. This career can be whatever from teaching, painting, discussion, writing, volunteering, travel and leisure. Determining a new career that suits your morals and strengths will help you to realize the highest degree of self-satisfaction.
 
 
 1.Use online self-assessments
@@ -32,5 +32,6 @@ When you decide you are ready to make a career change, it’s important to have 
 6. Network with like-minded people
 
 Our brain is significantly pretentious by what we think and trust. If an individual decides they are fixed in their current job or occupation with no way out, the brain will back up that belief. Thus, it is vital to surround yourself with positive energy and positive individuals who can chaperone you in the right direction. Connect with people who are in your field of interest and ask for an informational interview, read inspirational career success stories, join a mid career coach group or support group.
-
+visit:http://hemantdeshpande.com/
+      http://hemantdeshpande.com/career-coach-for-working-professional-in-delhi/
 
